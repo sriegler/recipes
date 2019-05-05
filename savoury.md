@@ -1,5 +1,19 @@
 # Savoury
 
+## Sauces
+
+### Sriracha Sauce
+
+500g Chillies
+3-5 Knoblauchzehen
+2 EL Zucker
+1 TL Salz
+100ml Wasser
+
+Im Barmixer grob zerkleinern. Zum Fermentieren in einen Behälter abfüllen, ~3 Tage bei Zimmertemperatur lagern. Anschließend fein mixen, mit Essig und Zucker abschmecken, aufkochen und auf die gewünschte Sämigkeit reduzieren.
+
+Im Kühlschrank vmtl. ~1 Monat haltbar.
+
 ## Vegan Cheese
 
 ### Cashew Hard Cheese
